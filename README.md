@@ -12,7 +12,7 @@ Heyyyyyyyyy !!! 😄
 - 🤔 **I’m looking for help with:** Building scalable AI + Cloud solutions 🔗  
 - 💬 **Ask me about:** Python 🐍, AI/ML, Cloud, or even Resin Art 🎨  
 - 📫 **How to reach me:** [gxnikhillll@gmail.com](mailto:gxnikhillll@gmail.com) | [nikhiltripathi911@gmail.com](mailto:nikhiltripathi911@gmail.com)
-- 😄 **Pronouns:**  Oyee Adi !!!
+- 😄 **Pronouns:**  Oyee Nikhilll !!!
 - ⚡ **Fun fact:** Turning ☕ into code, capturing life 📸, and spiking stress away 🏐  
 
 ---
