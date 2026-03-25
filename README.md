@@ -1,4 +1,4 @@
-# Hola , I'm Nihkil Tripathi
+# Hola , I'm Nikhil Tripathi
 **A passionate   AI/ML Enthusiast   ||   Cloud   ||   Pythonista 🐍  **  
 
 📧 **Email Me 👉 [gxnikhillll@gmail.com] OR [nikhiltripathi911@gmail.com]** for Collaboration, Projects, or just to say 
